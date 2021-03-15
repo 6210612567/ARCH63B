@@ -10,4 +10,4 @@ CLIP 5 : https://youtu.be/1QXNsdT0tfM
 
 CLIP 6 : https://youtu.be/HGUfCMZpLGM
 
-CLIP 7 :
+CLIP 7 : https://youtu.be/-iyOpvE6LYM
